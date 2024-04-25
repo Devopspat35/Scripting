@@ -1,8 +1,7 @@
 God is ever great to all the earth
-foncha njiaka
+foncha 
 abunga
 atemnkeng
-tazifor
 nkeng
 ajua
 asong
